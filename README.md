@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ddaakunitin
+- 👋 Hi, I’m @dakunitin
 - 👀 I’m interested in playing online games
 - 🌱 I’m currently learning B.tech Cse
 - 💞️ I’m looking to collaborate on multinational companies
